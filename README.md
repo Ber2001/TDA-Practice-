@@ -1,4 +1,4 @@
-Equipo para esta actividad
+Equipo para esta actividad:
 
 Bryan Esqueda Ruiz A01235857 
 
